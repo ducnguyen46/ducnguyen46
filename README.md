@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ducnguyen46
+- 👀 I’m interested in coding
+- 🌱 I’m currently learning mobile app
+- 💞️ I’m looking to collaborate on my family :)))
+- 📫 How to reach me fb.com/ducnguyen.46
